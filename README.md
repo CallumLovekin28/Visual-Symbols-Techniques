@@ -1,1 +1,1 @@
-# Visual-Symbols-Techniques
+# Visual Symbols & Visual Techniques :eyes:
