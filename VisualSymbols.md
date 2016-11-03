@@ -14,4 +14,9 @@
 ### How colours and visual symbols enforce emotion 
 ![alt] (Images2/Good Logos.png)
 
+### How colours help
+![alt] (Images2/M9PgU.png)
+
+
+
 
